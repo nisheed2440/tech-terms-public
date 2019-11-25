@@ -43,10 +43,4 @@ By using Tech Terms and/or by providing your information, you consent to the col
 
 The name and contact details for any grievances are provided below:
 
-Mr. Nisheed Jagadish
-
-Bengaluru, Karnataka - India
-
 Email: tech.terms.app@gmail.com
-
-Time: Mon - Fri (9:00 am - 6:00 pm) IST
